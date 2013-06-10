@@ -1,4 +1,4 @@
-Ciekawostki-ze--wiata
+Ciekawostki ze świata
 =====================
 ,,Podmokła Sahara"
 Pod pustynnymi piaskami Afryki Północnej kryją się wielkie, odnawialne zasoby czystej wody. Trzeba je tylko umiejętnie wykorzystywać
