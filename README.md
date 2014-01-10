@@ -24,3 +24,19 @@ Bogaci pompejanie jadali wykwintnie, ubożsi – do syta i zdrowo - pisze Krzysz
 
 Prof. Steven Ellis, profesor literatury klasycznej na Uniwersytecie Cincinnati, i jego zespół od lat prowadzą wykopaliska w Pompejach. Jednak ich uwaga nie koncentruje się na marmurowych posągach przysypanych popiołem po wybuchu Wezuwiusza 24 sierpnia 79 roku, ale na zapleczach domostw.
 artykuł dostępny na stronie: http://www.rp.pl/artykul/9129,1077970-Dieta-pompejanska-dla-ubogich.html
+
+
+,,Zakrzywiony Kosmos według Abla, tzn. Hubble'a ''
+
+
+Kosmiczny Teleskop Hubble'a po raz kolejny zachwyca niesamowitym zdjęciem. Tym razem sfotografował gromadę galaktyk Abell 2744. Wykorzystując ją niczym szkło powiększające, spojrzał jednak znacznie dalej w czasie i przestrzeni
+
+Cały tekst: http://wyborcza.pl/1,75476,15246333,Zakrzywiony_Kosmos_wedlug_Abla__tzn__Hubble_a.html#ixzz2q1Us2gxV
+
+
+,,Brat zmusił 10-latkę do zamachu bombowego. Władze odsyłają ją do domu. "Znów założą mi kamizelkę"''
+
+Cały tekst: http://wyborcza.pl/1,75477,15253797,Brat_zmusil_10_latke_do_zamachu_bombowego__Wladze.html#ixzz2q1UyTwd6
+
+
+
