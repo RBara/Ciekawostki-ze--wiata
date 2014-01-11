@@ -44,3 +44,9 @@ Ogromny pożar strawił w nocy starą dzielnicę w miejscowości Dukezong, poło
 Cały tekst http://www.rp.pl/artykul/9132,1078292-Plona-zabytki-w-Shangri-la.html
 
 
+
+,,Niezwykłe ceny zwykłych znaczków''
+Maleńki kawałek papieru za milion dolarów? O wartości znaczków decyduje ich unikalność, a także błędy drukarskie
+
+Obecnie najdroższy polski walor to znaczek o nominale 10 koron z wydania krakowskiego z 1919 r. w wersji z czarnym nadrukiem Poczta Polska. Wydrukowano go w 440 egzemplarzach. Wyceniany jest, zależnie od typu, na 37 – 70 tys. zł.
+Cały tekst: http://www.ekonomia.rp.pl/artykul/9132,294944-Niezwykle-ceny--zwyklych-znaczkow.html
