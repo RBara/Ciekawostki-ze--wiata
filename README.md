@@ -39,4 +39,8 @@ Cały tekst: http://wyborcza.pl/1,75476,15246333,Zakrzywiony_Kosmos_wedlug_Abla_
 Cały tekst: http://wyborcza.pl/1,75477,15253797,Brat_zmusil_10_latke_do_zamachu_bombowego__Wladze.html#ixzz2q1UyTwd6
 
 
+,,Spłonęły zabytkowe domy w Shangri-la''
+Ogromny pożar strawił w nocy starą dzielnicę w miejscowości Dukezong, położonej na historycznym Jedwabnym Szlaku. To teren zamieszkiwany głównie przez Tybetańczyków
+Cały tekst http://www.rp.pl/artykul/9132,1078292-Plona-zabytki-w-Shangri-la.html
+
 
